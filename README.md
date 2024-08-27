@@ -1,1 +1,0 @@
-# Tecnolog-as-en-la-edici-n
